@@ -1,4 +1,4 @@
-# Hi My name is Darnell Foster, nice to meet you! 👋
+# Hi my name is Darnell Foster, nice to meet you! 👋
 ---
 
 ## 🚀 About Me:
